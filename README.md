@@ -1,0 +1,3 @@
+Mittermayer István adatbázis házi feladata...
+Remélem jó a formátum vagy a mód ahogy feltettem?!
+Kérlek majd jelezd! Ha kell akkor pótolom máshogy.
